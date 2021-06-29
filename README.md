@@ -1,2 +1,2 @@
 # irmaos_a_obra
-Antônio é gay
+Projeto voltado a aprendizagem de pessoas mais que brothers, irmãos. E nós vamos a obra!
